@@ -1,0 +1,1 @@
+# Foxit-Studio-Photo-Latest-Patch
